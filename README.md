@@ -7,6 +7,6 @@
 - 💬 Ask me about 
 - 📫 You can get in touch with me through LinkedIn, Instagram, Twitter and my email.
 - 😄 Pronouns: ...
-- ⚡ Fun (and crazy) fact: When I was a kid, a snake bitten me climbing up a mountain, since then, I've never climbed up a mountain again.
+- ⚡ Fun (and crazy) fact: When I was a child, a snake bit me trying to climb a mountain. 
 
 
